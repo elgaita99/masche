@@ -1,0 +1,2 @@
+
+info de status??? queeeeeeeeeeeeeeeeeeeeee???
